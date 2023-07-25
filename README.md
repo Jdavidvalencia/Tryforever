@@ -1,2 +1,1 @@
-# Tryforever
-Will to keep learning more and more in the future
+No hay que desfallecer. Aprendiendo esto se expanden mucho mas los horizontes
